@@ -6,7 +6,9 @@
 
 ## 网站 www.xn--gmq47w820a.ga（已被和谐）
 
-## 新站 <a href="http://www.xn--gmq47w820a.ml/" target="_blank">http://www.太空人.ml/</a>
+## 网站 <a href="http://www.xn--gmq47w820a.ml/" target="_blank">http://www.太空人.ml/</a>（已被和谐）
+
+## 新站 <a href="http://www.taikongren.lol/" target="_blank">http://www.taikongren.lol/</a>
 
 ## 历史群号 1007853850 快乐老家（群已满）
 ## 目前群号 689937165 快乐老家3
