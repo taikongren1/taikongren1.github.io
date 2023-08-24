@@ -10,5 +10,7 @@
 
 ## 新站 <a href="http://www.taikongren.lol/" target="_blank">http://www.taikongren.lol/</a>
 
+## 新站 <a href="http://www.tkr.lol/" target="_blank">http://www.tkr.lol/</a>
+
 ## 历史群号 1007853850 快乐老家（群已满）
 ## 目前群号 689937165 快乐老家3
