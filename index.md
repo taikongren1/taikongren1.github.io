@@ -7,4 +7,4 @@
 ## 群号 1007853850 快乐老家
 ## 群号 689937165  快乐老家3
 ## <a href="https://gitlab.com/taikongren/taikongren/-/raw/main/Surfboard_latest.apk?inline=false" target="_blank">点击下载安卓客户端</a>
-## <a href="https://gitlab.com/taikongren/taikongren/-/raw/main/V2rayN.exe?ref_type=heads" target="_blank">点击下载Windows客户端</a>
+## <a href="https://gitlab.com/taikongren/taikongren/-/raw/main/v2rayN.zip?ref_type=heads&inline=false" target="_blank">点击下载Windows客户端</a>
